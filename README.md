@@ -1,0 +1,1 @@
+This is a meaw meow sample of words typed with me feengies withpout looking at them and with no consideration for the way it lookds im just fping for it and snever stioppiing it i djust keep ityupeing withpuout doing back i can liearn to tyoe with more acccurascy and speed without reltuing aon looinking at them.
